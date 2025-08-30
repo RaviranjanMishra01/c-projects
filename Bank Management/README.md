@@ -117,4 +117,4 @@ This project is open-source and available under the MIT License. Feel free to fo
 
 ## 📣 Feedback 💬
 
-If you have any feedback, please reach out to us at 📧 **sudhanshu95084145@gmail.com**. We would love to hear from you! 💌
+If you have any feedback, please reach out to us at 📧 **Raviranjanmishra767@gmail.com**. We would love to hear from you! 💌
